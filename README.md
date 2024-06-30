@@ -1,2 +1,2 @@
 ### Hi there 👋
-My name is Joono Chakma studying computer science from swinburne
+My name is Joono Chakma studying computer science from Swinburne
